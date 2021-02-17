@@ -1,1 +1,0 @@
-# snsidorenko.github.io
